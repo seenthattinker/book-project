@@ -18,5 +18,11 @@ https://fas.org/irp/agency/dod/jason/
 Positioning the battle for your mind  Ries & Trout
 
 
+Podcasts
+-------------
+
+https://www.spreaker.com/user/oppermanreport/programming-the-nation_1
+
+
 
 
