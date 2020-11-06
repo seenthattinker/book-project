@@ -77,7 +77,7 @@ What if a group of social engineers made up of psychiatrists,
 behaviorists,
 military mind control scientists,
 chemists,
-magicians and Satanists  decided that they could create virtual campaigns.
+magicians and Satanists decided that they could create virtual campaigns.
 What if at some point in our history the Basic Instincts of the human being were captured in an endless series of war games that never manifest as war.
 What if,
 in an effort to take Humanity to a new level of social organization,
