@@ -64,3 +64,19 @@ You apply unbending will.
 You deploy all cunning.
 Above all,
 you deceive.
+
+If we are understanding the concept of a  campaign correctly,
+we can see the entirety of human history as a series of endless campaigns.
+It seems as though human beings are hard-wired for a mission statement.
+Something always has to be conquered.
+There is always an enemy at the door.
+What if the very concept of a campaign and warfare specifically is so ingrained in the human being that we can exist without it.
+What if a group of social engineers made up of psychiatrists,
+behaviorists,
+military mind control scientists,
+chemists,
+magicians and Satanists  decided that they could create virtual campaigns.
+What if at some point in our history the Basic Instincts of the human being were captured in an endless series of war games that never manifest as war.
+What if,
+in an effort to take Humanity to a new level of social organization,
+they decided the war was against us?
