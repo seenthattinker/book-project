@@ -46,7 +46,7 @@ The Greeks waged campaigns,
 the Romans,
 the Persians,
 the Turks,
-the Monguls,
+the Mongols,
 the Chinese,
 the Japanese,
 the British,
@@ -82,4 +82,4 @@ What if at some point in our history the Basic Instincts of the human being were
 What if,
 in an effort to take Humanity to a new level of social organization,
 they decided the war was against us?
-hello.
+
