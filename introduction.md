@@ -2,16 +2,18 @@ Introduction
 ======================
 
 The concept of the campaign goes far back in the human record.
-What we know for sure is that a campaign is always full of focused intent. When the Romans were planning a military campaign they would send sewers out along the campaign Trail to plant wheat and other vegetables.  
+What we know for sure is that a campaign is always full of focused intent.
+When the Romans were planning a military campaign they would send sewers out along the campaign Trail to plant wheat and other vegetables.
 When the army was ready to start marching,
 there would be food already grown along the trail.
 This is what we mean by *focused intent*.
-A long and sustained campaign must be fortified with an unending will and a nearly limitless budget.  
+A long and sustained campaign must be fortified with an unending will and a nearly limitless budget.
 Every detail has to be planned out,
 like toe Roman army food supply planted along the trail before the campaign.
 Like so many things in life,
 a campaign comes out of the military.
 As a word it's been applied in very many modern contexts now.
+
 
 The Oxford Dictionary of American English defines it as follows:
 
