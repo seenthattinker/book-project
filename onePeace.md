@@ -48,11 +48,11 @@ like foraging for food?
 One of the best recent examples of useful propaganda was Pearl Harbor.
 The United States and crack the Japanese code six months or more before the attack on Pearl Harbor.
 They knew what was coming.
-The people of Pearl Harbor were never warned and no preparations in defense of an imminent attack where ever made.
+The people of Pearl Harbor were never warned and no preparations in defense of an imminent attack were ever made.
 The government of the United States of America did nothing to propel America into war,
 but,
 at the same time,
-they did nothing to keep us out of the war when the latter was an achievable goal.
+they did nothing to keep America out of the war when the latter was an achievable goal.
 Right around the time that the truth of Pearl Harbor was breaking in American consciousness,
 due to the lifting of the 50-year classified status on all materials related to Pearl Harbor in the possession of the US government,
 and it was revealed through academic distillation that in fact the United States did know about the attack and failed to warn the American people,
