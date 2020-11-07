@@ -19,10 +19,11 @@ let's get a clear definition from Merriam-Webster:
 >pro·​pa·​gan·​da
 >
 >
->1capitalized : a congregation of the Roman curia having jurisdiction over missionary territories and related institutions
+>1 capitalized : a congregation of the Roman curia having jurisdiction over missionary territories and related institutions
+>
 >2: the spreading of ideas, information, or rumor for the purpose of helping or injuring an institution, a cause, or a person
->3: ideas, facts, or allegations spread deliberately to further one's cause or to damage an opposing cause
->also : a public action having such an effect
+>
+>3: ideas, facts, or allegations spread deliberately to further one's cause or to damage an opposing cause also : a public action having such an effect
 
 
 
