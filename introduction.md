@@ -193,6 +193,30 @@ Yet here we are,
 on a campaign to chastise and subjugate ourselves,
 like an abbey of penitent Franciscans in the Middle Ages?
 
+The great campaigners of history are immortalized
+&mdash;
+Hitler with his defeat of France in record time,
+Napoleon's fracturing of the third alliance against him,
+the terrifying sieges of Genghis Khan and the Mongol hordes,
+Alexander the Great's multiple conquests in Perisa,
+Hannibal marching elephants across the Alps,
+and,
+of course,
+Caesar taking Gaul.   
+Everybody loves a winner.
+When you realize the degree to which our entire species is geared for campaigns,
+there seems little else we can do.
+What then become the great campaigns of the modern and post-modern worlds?
+And whatever this half AI,
+digital creep of a post-reality we're living in now,
+and we are living post-reality.
+Some people might suggest we're saying everybody is insane,
+but,
+for that to be true,
+there would have to be a viable definition of sane.
+There is not.
+
+
 
 
 Back in the days of Bernays,
