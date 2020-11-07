@@ -19,7 +19,7 @@ let's get a clear definition from Merriam-Webster:
 >pro·​pa·​gan·​da
 >
 >
->1 capitalized : a congregation of the Roman curia having jurisdiction over missionary territories and related institutions
+>1 capitalized: a congregation of the Roman curia having jurisdiction over missionary territories and related institutions
 >
 >2: the spreading of ideas, information, or rumor for the purpose of helping or injuring an institution, a cause, or a person
 >
@@ -63,15 +63,48 @@ to embolden the American people to demand they enter the war.
 It was an absolutely perfect piece of propaganda executed by the United States government on the United States people.
 
 
-At the same time that the hardcover copies of the ivy league  produced creative nonfiction was coming out with the truth a Pearl Harbor,
+At the same time that the hardcover copies of the Ivy League creative nonfiction were coming out at Barnes & Nobles
+&mdash;
+remember book stores?
+&mdash;
+
+with the truth a Pearl Harbor,
 Hollywood threw Ben Affleck into a little film called Pearl Harbor and retold the old sneak attack story.
 Twenty years after the official declassification of the truth of Pearl Harbor most Americans still believe it was a sneak attack.
 The truth is out there,
 but if nobody is telling it to you,
 straight to your face,
 like Ben Affleck on the big screen,
-and maybe it never happened,
-no matter what the history departments at Harvard and Yale have to say about it.
+then maybe it never happened,
+no matter what the doctors of history had to say about it.
+Tell people the horrible truth,
+then provide an emotionally convenient counter story.
+Reality is tough.
+They know you want to live in a comfortable place.
+
+Ben Affleck or:
+
+>In Day of Deceit, Robert Stinnett delivers the definitive final chapter on America's greatest secret and our worst military disaster.
+
+>Drawing on twenty years of research and access to scores of previously classified documents, Stinnett proves that Pearl Harbor was not an accident, a mere failure of American intelligence, or a brilliant Japanese military coup. By showing that ample warning of the attack was on FDR's desk and, furthermore, that a plan to push Japan into war was initiated at the highest levels of the U.S. government, he ends up profoundly altering our understanding of one of the most significant events in American history.
+
+They sacrificed three thousand people for the emotional equity to invest in World War II.
+Ben Affleck.
+Sneak attack.
+You never really had a choice.
+They've studied the way with you think.
+Everybody chooses honey.
+Nobody chooses vinegar.
+There's no moral reasoning to it.
+It's natural. 
+It is what it is.
+And so it goes with the light narrative.
+Only what persists in light survives,
+so we lose part of the truth.
+
+
+
+
 
 
 
