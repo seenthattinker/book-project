@@ -9,10 +9,10 @@ there would be food already grown along the trail.
 This is what we mean by *focused intent*.
 A long and sustained campaign must be fortified with an unending will and a nearly limitless budget.
 Every detail has to be planned out,
-like toe Roman army food supply planted along the trail before the campaign.
+like the Roman army food supply planted along the trail before the campaign.
 Like so many things in life,
 a campaign comes out of the military.
-As a word it's been applied in very many modern contexts now.
+It's applied in many modern contexts now.
 
 
 The Oxford Dictionary of American English defines it as follows:
@@ -67,6 +67,23 @@ You deploy all cunning.
 Above all,
 you deceive.
 
+There are no rules in war except prevail.
+Few who take up the trade ruminate on not prevailing.
+Maybe it's the single mindedness of the war campaign that so transfixes human imagination
+&mdash;
+the gravity of it all,
+the preciousness of life,
+the fleetingness of it.
+Maybe we can't feel those things unless we risk our lives,
+and maybe the way we have collectively agreed to this risk is war.
+Could this just be the natural consequence of a sentient being given free will?
+Who can say?
+The best philosophers of the past three millennia have no clue,
+and nobody else really cares.
+So war persists as the greatest pastime of the human race,
+with nary a generation since the first in the garden passing all its years in peace.
+
+
 If we are understanding the concept of a  campaign correctly,
 we can see the entirety of human history as a series of endless campaigns.
 It seems as though human beings are hard-wired for a mission statement.
@@ -78,8 +95,42 @@ behaviorists,
 military mind control scientists,
 chemists,
 magicians and Satanists decided that they could create virtual campaigns.
-What if at some point in our history the Basic Instincts of the human being were captured in an endless series of war games that never manifest as war.
+What if at some point in our history the basic instincts of the human being were captured in an endless series of war games that never manifest as war.
 What if,
-in an effort to take Humanity to a new level of social organization,
+in an effort to take humanity to a new level of social organization,
 they decided the war was against us?
+
+Of the many definitions of a campaign in the last seventy-five years,
+the one most accurate is *advertising campaign.*
+You might think that is a little flaccid
+&mdash;
+after all an advertising campaign could not possibly be as intense as a long,
+drawn out,
+logistically difficult military campaign,
+nor even remotely comparable in gravity to the consequences
+&mdash; 
+but we assure you,
+marketing is where a lot of the dirty science got deposited.
+
+
+The science of the popular mind,
+the collective or public mind,
+has been in the spotlight for a century.
+It has its roots in psychiatry and Edward Bernays was the double nephew of Sigmund Freud. 
+Born in Vienna,
+Austria,
+Bernays made his name in America.
+He was an unapologetic elitist,
+quoted as saying:
+
+>No [^1] serious sociologist any longer believes that the voice of the people expresses any divine or specially wise and lofty idea. The voice of the people expresses the mind of the people, and that mind is made up for it by the group leaders in whom it believes and by those persons who understand the manipulation of public opinion. It is composed of inherited prejudices and symbols and cliches and verbal formulas supplied to them by the leaders.
+
+
+[^1]: Propaganda by Edward L. Bernays, IG Publishing copyright 2005
+
+
+
+
+
+
 
