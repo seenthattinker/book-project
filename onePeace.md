@@ -28,12 +28,14 @@ let's get a clear definition from Merriam-Webster:
 
 It's really kind of hard to say what propaganda is in the twenty-first century.
 With so many independent voices disseminating information to micro audiences there has never been such a fracturing of the information stream in a modern society.
-Because of the impossibility of verifying everything said by every disseminator of information,
+Because of the impossibility of verifying everything said by every disseminator of information
+&mdash;
 whether the platform be podcasting,
 blogging,
 or independently maintained news sites with a very deliberately stated bias,
-like Christian news.
-We are there for living in an age of pure propaganda.
+like Christian news
+&mdash;
+we are living in an age of pure propaganda.
 Micro agendas are inching into the public space.
 No longer are we the nation that rallied together in the early part of the twentieth century,
 twice no less.
