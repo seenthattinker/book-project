@@ -123,17 +123,78 @@ Bernays made his name in America.
 He was an unapologetic elitist,
 quoted as saying:
 
->No [^1] serious sociologist any longer believes that the voice of the people expresses any divine or specially wise and lofty idea. The voice of the people expresses the mind of the people, and that mind is made up for it by the group leaders in whom it believes and by those persons who understand the manipulation of public opinion. It is composed of inherited prejudices and symbols and cliches and verbal formulas supplied to them by the leaders.
+>[^1] No serious sociologist any longer believes that the voice of the people expresses any divine or specially wise and lofty idea. The voice of the people expresses the mind of the people, and that mind is made up for it by the group leaders in whom it believes and by those persons who understand the manipulation of public opinion. It is composed of inherited prejudices and symbols and cliches and verbal formulas supplied to them by the leaders.
 
 
-[^1]: Propaganda by Edward L. Bernays, IG Publishing copyright 2005
+[^1]: Propaganda by Edward L. Bernays, IG Publishing &copy;  2005
 
 
-To continue this introduction,
-we must commence the notion of two worlds.
+
 There is a light world and there is a dark world.
 The light world is the world of public narrative,
-the ideas and beliefs we share in the public space.
+the ideas and beliefs we share in the public space,
+no matter how common or exotic
+&mdash;
+religion,
+science,
+the paranormal, 
+extraterrestrials,
+culture,
+music
+&mdash;
+literally anything else in the public space.
+That is the only criteria to live in the light world.
+The dark world is occulted from the light world.
+It fulfills its nature perfectly.
+It's everything else,
+all the little truths about this species,
+its biology,
+psychology,
+chemistry,
+literally consciousness itself. 
+There are opinions on what a human being is,
+as many as there are people,
+but there is only one truth.
+The opinions live in the light world.
+The truth lives in the dark world.
+It stays in the dark because it's too degrading.
+
+Bernays was in the light world,
+but only because he was speaking for the dark world.
+It works that way with a lot of things.
+People you see in the public were placed there by the dark world to anchor a new understanding.
+Sound absurd?
+Let's put it another way.
+Behind every new movement,
+new idea,
+new literary movement,
+new lifestyle or fashion design,
+is the dark world speaking into the light world.
+Think about it.
+What do you really know behind the *campaign* to make Charles Darwin the father of evolution?
+He only stood behind natural selection.
+That was his real thesis.
+So how did the *concept* of evolution become a part of western thinking,
+school curriculum,
+and defended public narrative,
+with only the most literal of the Abrahamic faiths standing behind god created?
+It was a campaign,
+you see? 
+Everything we do is a campaign.
+It's hard wired into the human race,
+and now it's behavioral tendencies have been capitalized upon by a predacious digital system that seems,
+day by day,
+a little bit closer to declaring itself a legal person,
+whatever that might say about artificial intelligence.
+How did it come to this?
+How did the western world build its own prison through a concatenated chain of seemingly free will decisions made by a handful of generations that began after the Second World War?
+It boggles the mind.
+Yet here are,
+on a campaign to chastise and subjugate ourselves,
+like an abbey of penitent Franciscans in the Middle Ages?
+
+
+
 Back in the days of Bernays,
 this was largely print,
 radio,
