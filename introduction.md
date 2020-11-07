@@ -14,6 +14,8 @@ Like so many things in life,
 a campaign comes out of the military.
 It's applied in many modern contexts now.
 
+![campaign](https://github.com/seenthattinker/the-capmpaigns/blob/main/images/10-bloodiest-military-campaigns-in-history-5.jpg)
+
 
 The Oxford Dictionary of American English defines it as follows:
 
