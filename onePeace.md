@@ -45,6 +45,34 @@ you know,
 like foraging for food?
 
 
+One of the best recent examples of useful propaganda was Pearl Harbor.
+The United States and crack the Japanese code six months or more before the attack on Pearl Harbor.
+They knew what was coming.
+The people of Pearl Harbor were never warned and no preparations in defense of an imminent attack where ever made.
+The government of the United States of America did nothing to propel America into war,
+but,
+at the same time,
+they did nothing to keep us out of the war when the latter was an achievable goal.
+Right around the time that the truth of Pearl Harbor was breaking in American consciousness,
+due to the lifting of the 50-year classified status on all materials related to Pearl Harbor in the possession of the US government,
+and it was revealed through academic distillation that in fact the United States did know about the attack and failed to warn the American people,
+and further,
+these same academics hypothecated that the reason was to create the emotional equity,
+via outrage,
+to embolden the American people to demand they enter the war.
+It was an absolutely perfect piece of propaganda executed by the United States government on the United States people.
+
+
+At the same time that the hardcover copies of the ivy league  produced creative nonfiction was coming out with the truth a Pearl Harbor,
+Hollywood threw Ben Affleck into a little film called Pearl Harbor and retold the old sneak attack story.
+Twenty years after the official declassification of the truth of Pearl Harbor most Americans still believe it was a sneak attack.
+The truth is out there,
+but if nobody is telling it to you,
+straight to your face,
+like Ben Affleck on the big screen,
+and maybe it never happened,
+no matter what the history departments at Harvard and Yale have to say about it.
+
 
 
 
