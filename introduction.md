@@ -189,7 +189,7 @@ whatever that might say about artificial intelligence.
 How did it come to this?
 How did the western world build its own prison through a concatenated chain of seemingly free will decisions made by a handful of generations that began after the Second World War?
 It boggles the mind.
-Yet here are,
+Yet here we are,
 on a campaign to chastise and subjugate ourselves,
 like an abbey of penitent Franciscans in the Middle Ages?
 
