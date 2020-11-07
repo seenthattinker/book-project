@@ -129,6 +129,21 @@ quoted as saying:
 [^1]: Propaganda by Edward L. Bernays, IG Publishing copyright 2005
 
 
+To continue this introduction,
+we must commence the notion of two worlds.
+There is a light world and there is a dark world.
+The light world is the world of public narrative,
+the ideas and beliefs we share in the public space.
+Back in the days of Bernays,
+this was largely print,
+radio,
+and finally television. 
+Today,
+there are dozens of pipelines into the digitally plugged in twenty-first century consumer.
+Too many to list here.
+
+
+
 
 
 
