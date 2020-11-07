@@ -39,9 +39,8 @@ we are living in an age of pure propaganda.
 Micro agendas are inching into the public space.
 No longer are we the nation that rallied together in the early part of the twentieth century,
 twice no less.
-We are now a series of barely interlinked igloos sitting out in the Arctic night for six months,
-occasionally crossing paths when,
-Necessities require us both to be out and about,
+We are now a series of barely interlinked igloos sitting out the Arctic night for six months,
+occasionally crossing paths when necessity require us both to be out and about,
 you know,
 like foraging for food?
 
