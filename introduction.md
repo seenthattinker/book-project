@@ -231,6 +231,12 @@ Too many to list here.
 
 
 
+Legislation to allow violations of cognitive liberty.
+
+
+
+
+
 
 
 
