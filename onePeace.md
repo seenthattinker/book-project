@@ -11,7 +11,7 @@ As the media grew so did propaganda.
 Just to make sure we're all on the same page,
 let's get a clear definition from Merriam-Webster:
 
-#### propaganda 
+#### propaganda
 
 >noun
 >
@@ -96,7 +96,7 @@ They've studied the way with you think.
 Everybody chooses honey.
 Nobody chooses vinegar.
 There's no moral reasoning to it.
-It's natural. 
+It's natural.
 It is what it is.
 And so it goes with the light narrative.
 Only what persists in light survives,
@@ -111,9 +111,6 @@ so we lose part of the truth.
 
 Altamont
 ---------------
-
-
-
 
 
 ![altamont](https://media.newyorker.com/photos/5c94002e2f0a2c2d279ce0aa/master/w_1600%2Cc_limit/altamont00.jpg)

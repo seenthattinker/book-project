@@ -110,7 +110,7 @@ after all an advertising campaign could not possibly be as intense as a long,
 drawn out,
 logistically difficult military campaign,
 nor even remotely comparable in gravity to the consequences
-&mdash; 
+&mdash;
 but we assure you,
 marketing is where a lot of the dirty science got deposited.
 
@@ -118,7 +118,7 @@ marketing is where a lot of the dirty science got deposited.
 The science of the popular mind,
 the collective or public mind,
 has been in the spotlight for a century.
-It has its roots in psychiatry and Edward Bernays was the double nephew of Sigmund Freud. 
+It has its roots in psychiatry and Edward Bernays was the double nephew of Sigmund Freud.
 Born in Vienna,
 Austria,
 Bernays made his name in America.
@@ -139,7 +139,7 @@ no matter how common or exotic
 &mdash;
 religion,
 science,
-the paranormal, 
+the paranormal,
 extraterrestrials,
 culture,
 music
@@ -153,7 +153,7 @@ all the little truths about this species,
 its biology,
 psychology,
 chemistry,
-literally consciousness itself. 
+literally consciousness itself.
 There are opinions on what a human being is,
 as many as there are people,
 but there is only one truth.
@@ -181,7 +181,7 @@ school curriculum,
 and defended public narrative,
 with only the most literal of the Abrahamic faiths standing behind god created?
 It was a campaign,
-you see? 
+you see?
 Everything we do is a campaign.
 It's hard wired into the human race,
 and now it's behavioral tendencies have been capitalized upon by a predacious digital system that seems,
@@ -224,7 +224,7 @@ There is not.
 Back in the days of Bernays,
 this was largely print,
 radio,
-and finally television. 
+and finally television.
 Today,
 there are dozens of pipelines into the digitally plugged in twenty-first century consumer.
 Too many to list here.
@@ -232,13 +232,3 @@ Too many to list here.
 
 
 Legislation to allow violations of cognitive liberty.
-
-
-
-
-
-
-
-
-
-
