@@ -113,4 +113,11 @@ Altamont
 ---------------
 
 
+<<<<<<< HEAD
 ![altamont](https://media.newyorker.com/photos/5c94002e2f0a2c2d279ce0aa/master/w_1600%2Cc_limit/altamont00.jpg)
+=======
+
+
+
+![altamont](https://media.newyorker.com/photos/5c9bbd692cb04a70c86db388/master/w_1600%2Cc_limit/altamont14.jpg)
+>>>>>>> main
