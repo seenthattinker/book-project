@@ -1,20 +1,23 @@
-name: Jekyll site CI
-
-on:
-  push:
-    branches: [ main ]
-  pull_request:
-    branches: [ main ]
-
-jobs:
-  build:
-
-    runs-on: ubuntu-latest
-
-    steps:
-    - uses: actions/checkout@v2
-    - name: Build the site in the jekyll/builder container
-      run: |
-        docker run \
-        -v ${{ github.workspace }}:/srv/jekyll -v ${{ github.workspace }}/_site:/srv/jekyll/_site \
-        jekyll/builder:latest /bin/bash -c "chmod 777 /srv/jekyll && jekyll build --future"
+name: Jekyll Action TS
+  # You may pin to the exact commit or the version.
+  # uses: limjh16/jekyll-action-ts@7ded763186a1a13a2967dc7fdd4a9a61c1c0c302
+  uses: limjh16/jekyll-action-ts@v2
+  with:
+    # The Jekyll website source directory
+    jekyll_src: # optional
+    # The Jekyll Gemfile directory
+    gem_src: # optional
+    # Custom Jekyll build options https://jekyllrb.com/docs/configuration/options/
+    custom_opts: # optional
+    # Enable caching within the action
+    enable_cache: # optional
+    # An explicit key for restoring and saving the cache
+    key: # optional
+    # An ordered list of keys to use for restoring the cache if no cache hit occurred for key
+    restore-keys: # optional
+    # Format the output html files
+    format_output: # optional
+    # Custom prettier options to format output html files
+    prettier_opts: # optional
+    # Skips formatting certain files / paths
+    prettier_ignore: # optional
