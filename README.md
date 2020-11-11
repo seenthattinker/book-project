@@ -1,4 +1,4 @@
-![firm](https://github.com/seenthattinker/the-capmpaigns/blob/main/images/theFirm.png)
+![firm](images/theFirm.png)
 
 
 The firm is an open source book writing workshop.
