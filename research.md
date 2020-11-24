@@ -1,6 +1,10 @@
 Research
 =============
 
+One generation passeth away, and another generation cometh: but the earth abideth for ever.
+
+- KJB Ecclesiastes 14:4
+
 This section is to drop research.
 
 
@@ -24,7 +28,3 @@ Podcasts
 -------------
 
 https://www.spreaker.com/user/oppermanreport/programming-the-nation_1
-
-
-
-
