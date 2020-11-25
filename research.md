@@ -19,6 +19,8 @@ https://fas.org/irp/agency/dod/jason/
 
 https://en.wikipedia.org/wiki/Lookout_Mountain_Air_Force_Station
 
+https://en.wikipedia.org/wiki/John_Perry_Barlow
+
 ### Books
 
 Positioning the battle for your mind  Ries & Trout
