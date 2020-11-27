@@ -27,6 +27,8 @@ https://nationalpost.com/opinion/rex-murphy-a-pathetic-display-by-an-anti-jordan
 
 Positioning the battle for your mind  Ries & Trout
 
+https://www.act.nato.int/images/stories/media/doclibrary/open201705-memetic1.pdf
+
 
 Podcasts
 -------------
