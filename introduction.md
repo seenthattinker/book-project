@@ -1,49 +1,85 @@
 Introduction
 ======================
 
-The concept of the campaign goes far back in the human record.
-What we know for sure is that a campaign is always full of focused intent.
-When the Romans were planning a military campaign they would send sewers out along the campaign Trail to plant wheat and other vegetables.
+
+As hard as it might be to believe,
+the world has been run by generational and sub-generational programs for decades now.
+We are going to attempt one of the boldest theses ever put forward on social engineering.
+It is our intent to convince you that sometime in the early twentieth century,
+probably the result of planning in the late nineteenth century,
+a design was created whereby humanity would go into the first Industrial Age,
+and it was agreed that to advance humanity into this technological age,
+humanity had to be governed and controlled in a manner by which they were never aware they were being controlled.
+
+
+The thesis that we're going to put forward is a very simple one
+&mdash;
+somebody with the power and ability to do so envisioned a world without war.
+The very concept of war had reached the limit of its expression.
+But war is marked on the flesh and marred into the memory of the human race.
+War has been the most consistent practice of the organized human race.
+If human technology was to go further the tendency to war had to be quashed.
+For that to be effected,
+the human race had to be brought into a centralized control.
+This means global governance,
+and this means warfare waged by tactical police units against small civilian populations.
+It's important to keep in mind that our thesis does not preclude violence.
+State violence will inevitably increase as nation violence decreases.
+
+As the shape of the future began to take form in the mists of whatever black mirror these people looked into,
+one thing above all else was clear
+&mdash;
+humanity was a liability in its natural form.
+How could humanity be helped?
+How could humanity be saved from itself?
+How could humanity invite and occupy the brave new world to come?
+Thus began the pedagogy of the of the state-citizen,
+where the teacher is the state and the citizen is the student.
+No matter what form of human organization evolved,
+collective or individualistic,
+the pedagogy was there,
+always there like some mother superior waiting to cane your hands.
+
+The great irony of their position is and always has been the most brutal aspects of warfare
+&mdash;
+perpetual deception,
+random killings,
+increased money gathering through taxes,
+licensing,
+and fines for the war effort,
+constant confusion and anxiety for the citizen
+&mdash;
+are always in use because the only way to stop warfare is warfare.
+It's for our own good.
+It's the pedagogy of the most ascetic order of punishment ever assembled.
+
+There's something inescapable in the religious model.
+No matter how much we think we've left it behind,
+its footprints are everywhere,
+like some nocturnal predator we witness only in the morning by the tracks left in the snow.
+It's there even if we can't see it.
+The masochistic tendencies evolving in the secular state rival the most Draconian ever employed by the Medieval Vatican.
+It's a godless inquisition,
+but an inquisition nonetheless,
+and what was the inquisition other than a holy campaign?
+A campaign is a chapter in the book of war that is the human race.
+
+
+A campaign is full of focused intent.
+When the Romans were planning a military campaign,
+they'd send seed planters out along the campaign trail.
 When the army was ready to start marching,
-there would be food already grown along the trail.
-This is what we mean by *focused intent*.
+there'd be food already grown along the trail.
+This is *focused intent*.
+
+
 A long and sustained campaign must be fortified with an unending will and a nearly limitless budget.
 Every detail has to be planned out,
 like the Roman army food supply planted along the trail before the campaign.
-Like so many things in life,
-a campaign comes out of the military.
-It's applied in many modern contexts now.
-
-![campaign](https://github.com/seenthattinker/the-capmpaigns/blob/main/images/10-bloodiest-military-campaigns-in-history-5.jpg)
-
-
-The Oxford Dictionary of American English defines it as follows:
-
-
-#### campaign
-
->*noun*
->
->campaign (against/for something) a series of planned activities that are intended to achieve a particular social, commercial, or political aim:
->
->- to conduct a campaign
->- a campaign against ageism in the workplace
->- the campaign for congressional reform
->- an antismoking campaign
->- Today police launched (= began) a campaign to reduce traffic accidents.
->- an advertising campaign
->- an election campaign
->- the president's campaign team/manager
->- Topic Collocations
->- a series of attacks and battles that are intended to achieve a particular military aim during a war
->- the North African campaign
->- a bombing campaign.
 
 
 Military campaigns are the foundation of our understanding of the world.
-You have probably delimited your understanding of history by military campaigns,
-whether you realize it or not.
-The Hebrews were the victims of campaigns by the Assyrians and the Babylonians.
+You've probably sorted your history by military campaigns whether you realize it or not.
 The Greeks waged campaigns,
 the Romans,
 the Persians,
@@ -86,17 +122,17 @@ So war persists as the greatest pastime of the human race,
 with nary a generation since the first in the garden passing all its years in peace.
 
 
-If we are understanding the concept of a  campaign correctly,
-we can see the entirety of human history as a series of endless campaigns.
+We can see the entirety of human history as a series of endless campaigns.
 It seems as though human beings are hard-wired for a mission statement.
 Something always has to be conquered.
 There is always an enemy at the door.
-What if the very concept of a campaign and warfare specifically is so ingrained in the human being that we can exist without it.
+What if the very concept of a campaign and warfare specifically is so ingrained in the human being that we can't exist without it.
 What if a group of social engineers made up of psychiatrists,
 behaviorists,
 military mind control scientists,
 chemists,
-magicians and Satanists decided that they could create virtual campaigns.
+magicians,
+and Satanists decided that they could create virtual campaigns.
 What if at some point in our history the basic instincts of the human being were captured in an endless series of war games that never manifest as war.
 What if,
 in an effort to take humanity to a new level of social organization,
@@ -125,10 +161,10 @@ Bernays made his name in America.
 He was an unapologetic elitist,
 quoted as saying:
 
->[^1] No serious sociologist any longer believes that the voice of the people expresses any divine or specially wise and lofty idea. The voice of the people expresses the mind of the people, and that mind is made up for it by the group leaders in whom it believes and by those persons who understand the manipulation of public opinion. It is composed of inherited prejudices and symbols and cliches and verbal formulas supplied to them by the leaders.
+>No serious sociologist any longer believes that the voice of the people expresses any divine or specially wise and lofty idea. The voice of the people expresses the mind of the people, and that mind is made up for it by the group leaders in whom it believes and by those persons who understand the manipulation of public opinion. It is composed of inherited prejudices and symbols and cliches and verbal formulas supplied to them by the leaders.
 
 
-[^1]: Propaganda by Edward L. Bernays, IG Publishing &copy;  2005
+>*Propaganda* by Edward L. Bernays, IG Publishing &copy;  2005
 
 
 
