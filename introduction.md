@@ -274,5 +274,11 @@ there are dozens of pipelines into the digitally plugged in twenty-first century
 Too many to list here.
 
 
-
-Legislation to allow violations of cognitive liberty.
+The state of the world now with computation and digitization is almost indescribable.
+The study of the human brain,
+the chemistry and biology,
+the behavior,
+have been so ingrained in the digital world that it can be seen as little more than the most heinous control system ever created,
+a non-stop dopamine dispensary.
+This is where we find ourselves in the early twenty-first century,
+digital lockdown in a self-created prison of stimulation and reward.
