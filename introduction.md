@@ -122,6 +122,14 @@ So war persists as the greatest pastime of the human race,
 with nary a generation since the first in the garden passing all its years in peace.
 
 
+The single greatest act of subterfuge perpetrated upon the Western mind, and more specifically,
+the American mind,
+is the propagation of the idea that the evolution of Western culture has been natural and organic.
+The truth is the last 100 years have been one long military campaign.
+The battle line was drawn sometime  around the medical discovery of the unconscious.
+It was almost as though the emerging medical science of psychiatry was itself a disclosure of what they planned to do.
+
+
 We can see the entirety of human history as a series of endless campaigns.
 It seems as though human beings are hard-wired for a mission statement.
 Something always has to be conquered.
