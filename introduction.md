@@ -244,7 +244,7 @@ The great campaigners of history are immortalized
 Hitler with his defeat of France in record time,
 Napoleon's fracturing of the third alliance against him,
 the terrifying sieges of Genghis Khan and the Mongol hordes,
-Alexander the Great's multiple conquests in Perisa,
+Alexander the Great's multiple conquests in Persia,
 Hannibal marching elephants across the Alps,
 and,
 of course,
